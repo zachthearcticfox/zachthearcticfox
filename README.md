@@ -1,4 +1,4 @@
-im a fox who cannot program things :)
+im a fox who cannot program things :3
 
 <!---
 Redstone-The-Fox/Redstone-The-Fox is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
